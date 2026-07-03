@@ -1,4 +1,4 @@
-# 
+# Premium bybit trading bot scripts for Mac OS | Elite bybit trading bot scripts for PC Windows. Featuring API de exchange centralizada and análise de momento — optimized for maximum performance.
 
 
 
